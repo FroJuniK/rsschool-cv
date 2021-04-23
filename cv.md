@@ -12,4 +12,4 @@ kbf1100@gmail.com
 #### - Telegram
 [Kseniya Frolova](https://t.me/yuka1100)
 #### - LinkedIn
-[Kseniya Frolova](https://www.linkedin.com/in/kseniyafro1100/)
+[Kseniya Frolova](https://www.linkedin.com/in/kseniyafro1100)
